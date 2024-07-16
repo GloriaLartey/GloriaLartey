@@ -1,1 +1,2 @@
-## Hi there I'm gloria lartye
+## Hi there I'm Gloria Lartey
+
